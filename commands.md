@@ -5,17 +5,13 @@ w54
 534rf
 
 ----------
-Ergänzung:
+Ergänzungen:
 
 asdfdasadfsas
 dfasdf
 asdfdasasdf
 asdfdasasdf
 adsfasdf
-
-----------
-Weitere Ergänzung:
-
 hjkgl
 gkl
 hjkl
